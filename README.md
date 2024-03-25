@@ -1,3 +1,2 @@
 # ASSESSMENT
-
-To start with
+ This how I stated my proccess
